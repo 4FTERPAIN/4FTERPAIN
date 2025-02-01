@@ -1,8 +1,6 @@
 <div align="center">
 <hl align="center">Welcome!! i'm <a href="https://milgram.fandom.com/wiki/Kusunoki_Muu">Muu</a> (  ≧ᗜ≦)</hl>
 
-![image](https://github.com/user-attachments/assets/45357fc3-48ef-4beb-bb4e-b2a5378b2234)
-
 
 
 
