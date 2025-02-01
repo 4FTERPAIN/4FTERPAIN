@@ -29,4 +29,8 @@ Please don't stick to me like a piece of gum... I HATE attitudes like that, I fe
 
 ![image](https://github.com/user-attachments/assets/5a0bb7ea-45da-479d-b299-c00a177325de)
 
+![image](https://github.com/user-attachments/assets/408f1782-f407-4a27-a76f-16bf086373c7)
+
+
+
 
