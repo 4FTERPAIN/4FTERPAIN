@@ -11,7 +11,7 @@ mostly off-tab, afk or semi-afk, so w2i plspls T_T always c + h! But if I alread
 
 I don't usually interact first, so, yeah, I am a little shy to talk to others in general, don't expect much from me in energy social o_o I like to sit and just watch from afar, I like ponywatching OKAY i'm not a stalker OK.. i just watch everyone, if u are uncomfortable with that i can stop OFC, i dont mind rlly
 
-Please don't stick to me like a piece of gum... I HATE attitudes like that, I feel very overwhelmed and the only thing u will get is me walking away from you or being uncomfortable T_T okay i think that's all.. i like rpgs and midori and yttd and midori sou hiyori and MIDORI god i love him so much.. and yes, I'm literally muu kusunoki from milgram
+Please don't stick to me like a piece of gum... I HATE attitudes like that, I feel very overwhelmed and the only thing u will get is me walking away from you or being uncomfortable T_T okay i think that's all.. i like rpgs and midori and yttd and midori sou hiyori and MIDORI god i love him so much.. and yes, I'm literally muu kusunoki from milgram (without being a murderer or bully haha) 
 
 
 
