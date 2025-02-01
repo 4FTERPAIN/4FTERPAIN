@@ -1,7 +1,7 @@
 <div align="center">
 <hl align="center">Welcome!! i'm <a href="https://milgram.fandom.com/wiki/Kusunoki_Muu">Muu</a> (  ≧ᗜ≦)</hl>
 
-![image.png](https://github.com/user-attachments/assets/875e2f42-9c9f-4c36-beb4-485da4d7090c)
+![png](https://github.com/user-attachments/assets/875e2f42-9c9f-4c36-beb4-485da4d7090c)
 
 hii.. you can call me jade or muu, preferred muu. (they/them/it) I'm a minor (I won't say it here my age, it's uncomfortable for me oke) so sorry if i am sth emotional or sensitive/dramatic? be patient, please
 
