@@ -20,7 +20,7 @@ I don't usually interact first, so, yeah, I am a little shy to talk to others in
 
 Please don't stick to me like a piece of gum... I HATE attitudes like that, I feel very overwhelmed and the only thing u will get is me walking away from you or being uncomfortable T_T okay i think that's all.. i like rpgs and midori and yttd and midori sou hiyori and MIDORI god i love him so much.. and yes, I'm literally muu kusunoki from milgram (without being a murderer or bully haha) 
 
-
+super dni okegom btw
 
 <img alt="Static Badge" src="https://img.shields.io/badge/-discord!!?style=social&logo=appveyor&logoColor=%23f8cfbb&logoSize=auto&label=(%20%CB%B6%CB%86%E1%97%9C%CB%86%CB%B5%20)&labelColor=%23f8cfbb&color=%23f8cfbb&cacheSeconds=3600&link=%20https%3A%2F%2Fdiscordapp.com%2Fusers%2F874684535835603004">
 
