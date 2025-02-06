@@ -22,15 +22,4 @@ Please don't stick to me like a piece of gum... I HATE attitudes like that, I fe
 
 super dni okegom btw
 
-<img alt="Static Badge" src="https://img.shields.io/badge/-discord!!?style=social&logo=appveyor&logoColor=%23f8cfbb&logoSize=auto&label=(%20%CB%B6%CB%86%E1%97%9C%CB%86%CB%B5%20)&labelColor=%23f8cfbb&color=%23f8cfbb&cacheSeconds=3600&link=%20https%3A%2F%2Fdiscordapp.com%2Fusers%2F874684535835603004">
-
-
-
-
-![image](https://github.com/user-attachments/assets/5a0bb7ea-45da-479d-b299-c00a177325de)
-
-![image](https://github.com/user-attachments/assets/408f1782-f407-4a27-a76f-16bf086373c7)
-
-
-
 
