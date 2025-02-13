@@ -7,7 +7,9 @@
 ![image](https://github.com/user-attachments/assets/70cc5661-9d3a-4699-9bee-333b8e7a2473)
 
 
-hii! u can call me jade or muu, preferred muu. (they/them/it/elle) I'm a minor. so sorry if i am sth emotional or sensitive/dramatic!! its not intencional, be patient like i'm with you, please
+hii! u can call me jade or muu, preferred muu. (they/them/it/elle) 
+
+I'm a minor. so sorry if i am sth emotional or sensitive/dramatic!! its not intencional, be patient like i'm with you, please
 
 i speak spanish & english!
 
