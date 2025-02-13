@@ -27,7 +27,9 @@ I like to sit and just watch from afar, I like ponywatching (no, i don't harass.
 I don't put hide unless things don't get serious or you really bother me.
 
 If any attitude or thing about me bothers you, **hide me** and that's all what you have to do if is that the situation. 
-Don't look for a fight or much less cause me stress or harm, don't be a **idiot**
+Don't look for a fight or much less cause me stress or harm, **no seas un boludo mas del monton**
+
+Whether you like it or not, whether you hide it or not, I am aware of the things you say about me sometimes, indirects things are stupid, thank you for feeding my attention!! i dont need it but is cute and dumb by you part talk of me like that haha u know.
 
 **super dni okegom.** full dni & more info in my links
 
