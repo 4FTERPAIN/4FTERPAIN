@@ -15,7 +15,7 @@ interact with care **ALWAYS for everyone**
 
 i speak *spanish* & *english*!
 
-**big** rpgs & novels visual fan (muu fan too if YOU DONT NOTICE, don't try to compete with me)
+**big** rpgs & novels visual fan (muu fan too if YOU DONT NOTICE, don't try to compete with me :-I)
 
 mostly off-tab, afk or semi-afk, so whisper can help. always free cuddle with me! But if I already have dniuf, dniuparty or dni, **do not interact with me in any way unless you are from a party or a friend pls.**
 
