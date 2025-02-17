@@ -21,7 +21,7 @@ mostly off-tab, afk or semi-afk, so whisper can help. always free cuddle with me
 **do not interact with me in any way unless you are from a party or a friend pls.**
 
 I don't usually interact first, I am a little shy to talk to others in general, don't expect much from me in energy social haha.. o_o 
-I like to sit and just watch from afar, I like ponywatching (no, i don't harass.)
+I like to sit and just watch from afar, I like ponywatching (no, i don't harass LOL)
 
 **I avoid and ignore what I don't like or I hate**, the people who are on my DNI or etc. 
 I don't put hide unless things don't get serious or you really bother me.
