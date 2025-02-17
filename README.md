@@ -31,6 +31,8 @@ Don't look for a fight or much less cause me stress or harm, **no seas un boludo
 
 Whether you like it or not, whether you hide it or not, I am aware of the things you say about me sometimes, indirects things are stupid, thank you for feeding my attention!! i dont need it but is cute and dumb by you part talk of me like that u know 
 
+in safe esp server, safe eng server or in the esp 18+ server because they usually ban me for... saying things.. things, things..
+
 **SUPER DNI okegom & ranfren** (selective, I make exceptions but I VERY rarely do them so don't expect much) + full dni in my links
 
 
