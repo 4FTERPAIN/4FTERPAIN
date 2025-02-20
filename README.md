@@ -35,4 +35,6 @@ in safe esp server, safe eng server or in the esp 18+ server because they usuall
 
 **SUPER DNI okegom & ranfren** (selective, I make exceptions but I VERY rarely do them so don't expect much) + full dni in my links
 
+datazo: OIGAN SABIAN QUE ME CORTE EL PELO Y AHORA PLANEO TEÑIRME EL PELO ROSITA SALMON COMO MUU?? 
+
 
