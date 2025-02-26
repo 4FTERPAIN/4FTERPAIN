@@ -9,7 +9,7 @@
 
 hiiyaa! you can call me jade or **muu**, **preferred muu**. (**they/them/it/elle**) 
 
-I'm a minor. so sorry if i am sth *emotional* or **sensitive/dramatic**!! its not intencional, *be patient like i'm with you*, please. 
+I'm a minor. so sorry if i am sth *emotional* or **sensitive/dramatic**,its not intencional, *be patient like i'm with you*, please
 
 interact with care **ALWAYS for everyone**
 
@@ -27,14 +27,10 @@ I like to sit and just watch from afar, I like ponywatching (no, i don't harass 
 I don't put hide unless things don't get serious or you really bother me.
 
 If any attitude or thing about me bothers you, **hide me** and that's all what you have to do if is that the situation. 
-Don't look for a fight or much less cause me stress or harm, **no seas un boludo mas del monton**
+Don't look for a fight or much less cause me stress or bad moments
 
-Whether you like it or not, whether you hide it or not, I am aware of the things you say about me sometimes, indirects things are stupid, thank you for feeding my attention!! i dont need it but is cute and dumb by you part talk of me like that u know 
+in safe esp server, english servers or in the spanish servers yep
 
-in safe esp server, safe eng server or in the esp 18+ server because they usually ban me for... saying things.. things, things..
-
-**SUPER DNI okegom & ranfren** (selective, I make exceptions but I VERY rarely do them so don't expect much) + full dni in my links
-
-datazo: OIGAN SABIAN QUE ME CORTE EL PELO Y AHORA PLANEO TEÑIRME EL PELO ROSITA SALMON COMO MUU?? 
+**SUPER DNI okegom & ranfren** (selective, I make exceptions but I VERY rarely & strict do them so don't expect much) + full dni in my links
 
 
