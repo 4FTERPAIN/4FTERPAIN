@@ -13,7 +13,7 @@ I'm a minor. so sorry if i am sth *emotional* or **sensitive/dramatic**,its not 
 
 interact with care **ALWAYS for everyone**
 
-i speak *spanish* & *english*!
+i speak *spanish* & *english*, yep
 
 **big** rpgs & novels visual fan (muu fan too if YOU DONT NOTICE, don't try to compete with me :-I)
 
