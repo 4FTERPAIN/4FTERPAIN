@@ -9,7 +9,7 @@
 
 hiiyaa! you can call me jade or **muu**, **preferred muu**. (**they/them/it preef**, he/him is ok idm) 
 
-I'm a minor. so sorry if i am sth *emotional* or **sensitive/dramatic**,its not intencional, *be patient like i'm with you*, please
+I'm a minor. so sorry if i am sth *emotional* or **sensitive/dramatic**,its not intencional, be patient like i'm with you, please
 
 interact with care **ALWAYS for everyone**
 
