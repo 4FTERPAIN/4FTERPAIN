@@ -24,7 +24,7 @@ I don't usually interact first, I am a little shy to talk to others in general, 
 I like to sit and just watch from afar, I like ponywatching (no, i don't harass LOL)
 
 **I avoid and ignore what I don't like or I hate**, the people who are on my DNI or etc. 
-I don't put hide unless things don't get serious or you really bother me.
+I don't put hide unless things don't get serious or you really bother me yeah
 
 If any attitude or thing about me bothers you, **hide me** and that's all what you have to do if is that the situation. 
 Don't look for a fight or much less cause me stress or bad moments
