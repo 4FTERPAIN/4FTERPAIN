@@ -7,7 +7,7 @@
 ![image](https://github.com/user-attachments/assets/70cc5661-9d3a-4699-9bee-333b8e7a2473)
 
 
-hiiyaa! you can call me jade or **muu**, **preferred muu**. (**they/them/it preef, he/him is ok) 
+hiiyaa! you can call me jade or **muu**, **preferred muu**. (**they/them/it preef, he/him is ok idm) 
 
 I'm a minor. so sorry if i am sth *emotional* or **sensitive/dramatic**,its not intencional, *be patient like i'm with you*, please
 
