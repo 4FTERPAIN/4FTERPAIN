@@ -29,4 +29,6 @@ in safe esp server, english servers or in the spanish servers yep
 
 **SUPER DNI okegom & ranfren** (selective, I make exceptions but I VERY rarely & strict do them so don't expect much) + full dni in my links
 
+and yes I'm literally mikoto kayano IRL and muu kusunoki heavy HEAAAAVY fictkin
+
 
