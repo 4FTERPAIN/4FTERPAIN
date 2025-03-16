@@ -7,28 +7,19 @@
 ![image](https://github.com/user-attachments/assets/65a1ce5b-f30b-47fd-a26b-f7bae947a886)
 
 
+𓏵 ㅤㅤ ⤷ ㅤ  Muuㅤ orㅤㅤ Jad(**i**)e ˚ .ㅤ 🎀ㅤ༘⋆ㅤㅤ::ㅤㅤ interactㅤ with care ㅤ**always**ㅤ 𓍼
 
-hiiyaa! you can call me jade or **muu**, **preferred muu**. (**they/them/it preef**, he/him is ok idm) + i speak spanish & english, yep
+♱ㅤ::ㅤ**Mikotoㅤ Kayano IRL**ㅤ&ㅤMuu Kusunoki ㅤHeavy ㅤFictkin ! ! . . (..◜ᴗ◝..) **minor**ㅤೀ
 
-mostly off-tab, afk or semi-afk, so whisper can help. always free cuddle with me! But if I already have dniuf, dniuparty or dni, 
-**do not interact with me in any way unless you are from a party or a friend plssss..** + interact with care **ALWAYS for everyone**
+𓍯𓂃ㅤ. . they :: themㅤor itㅤㅤ- ㅤㅤheㅤㅤhim isㅤ**OK**ㅤᛝㅤpreef they ㅤthemㅤit **no plural**
 
-I'm a minor. so sorry if i am sth *emotional* or **sensitive/dramatic**,its not intencional, be patient like i'm with you, please
+જ⁀➴ㅤask forㅤ **dms**ㅤ: : ㅤ**C+H**ㅤalwaysㅤwlcㅤunless when **"DNIUF"** orㅤ. . u know ok 𐙚
 
-**big** rpgs & novels visual fan (muu fan too if YOU DONT NOTICE, don't try to compete with me :-I)
+𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃 co / muuyunoㅤㅤfor check   DNI & **my mainㅤ rentry is in ㅤremake ok**ㅤ. .ㅤ( •̯́ ₃ •̯̀)
+     
+► •၊၊||၊|။||||| 0:10  playing   AFTER PAIN - **MUU KUSUNOKI** MILGRAM "  **I overheard, I found out**  "  
 
-**I avoid and ignore what I don't like or I hate**, the people who are on my DNI or etc. 
-I don't put hide unless things don't get serious or you really bother me yeah
+![image](https://github.com/user-attachments/assets/c3be99a6-21cb-4135-81a7-27ec5b9f1818)
 
-If any attitude or thing about me bothers you, **hide me** and that's all what you have to do if is that the situation. 
-Don't look for a fight or much less cause me stress or bad moments
-
-erhmmmm my rentry is in remake soooo check my straw page if wanna know more about me (??)
-
-in safe esp server, english servers or in the spanish servers yep
-
-**SUPER DNI okegom & ranfren** (selective, I make exceptions but I VERY rarely & strict do them so don't expect much) + full dni in my links
-
-and yes I'm literally mikoto kayano IRL and muu kusunoki heavy HEAAAAVY fictkin like. heavy but HEAVY HEAVY HEAVY connected
-
+ㅤ♡
 
