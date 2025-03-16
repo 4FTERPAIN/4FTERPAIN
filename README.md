@@ -4,7 +4,8 @@
   
   ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
   
-![image](https://github.com/user-attachments/assets/70cc5661-9d3a-4699-9bee-333b8e7a2473)
+![image](https://github.com/user-attachments/assets/65a1ce5b-f30b-47fd-a26b-f7bae947a886)
+
 
 
 hiiyaa! you can call me jade or **muu**, **preferred muu**. (**they/them/it preef**, he/him is ok idm) + i speak spanish & english, yep
