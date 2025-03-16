@@ -7,7 +7,7 @@
 ![image](https://github.com/user-attachments/assets/70cc5661-9d3a-4699-9bee-333b8e7a2473)
 
 
-hiiyaa! you can call me jade or **muu**, **preferred muu**. (**they/them/it preef**, he/him is ok idm) + i speak *spanish* & *english*, yep
+hiiyaa! you can call me jade or **muu**, **preferred muu**. (**they/them/it preef**, he/him is ok idm) + i speak spanish & english, yep
 
 mostly off-tab, afk or semi-afk, so whisper can help. always free cuddle with me! But if I already have dniuf, dniuparty or dni, 
 **do not interact with me in any way unless you are from a party or a friend plssss..** + interact with care **ALWAYS for everyone**
@@ -24,6 +24,8 @@ I don't put hide unless things don't get serious or you really bother me yeah
 
 If any attitude or thing about me bothers you, **hide me** and that's all what you have to do if is that the situation. 
 Don't look for a fight or much less cause me stress or bad moments
+
+erhmmmm my rentry is in remake soooo check my straw page if wanna know more about me (??)
 
 in safe esp server, english servers or in the spanish servers yep
 
