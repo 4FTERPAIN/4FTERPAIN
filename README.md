@@ -22,4 +22,5 @@
 ![image](https://github.com/user-attachments/assets/c3be99a6-21cb-4135-81a7-27ec5b9f1818)
 
 ㅤ♡
-no i don't ship muuyuno. i am a harumuu shipper 
+
+no i don't ship muuyuno. i am a harumuu shipper muu nd yuno are like, jirai kei duo
