@@ -17,9 +17,6 @@ I'm a minor. so sorry if i am sth *emotional* or **sensitive/dramatic**,its not 
 
 **big** rpgs & novels visual fan (muu fan too if YOU DONT NOTICE, don't try to compete with me :-I)
 
-I don't usually interact first, I am a little shy to talk to others in general, don't expect much from me in energy social haha.. o_o 
-I like to sit and just watch from afar, I like ponywatching (no, i don't harass LOL)
-
 **I avoid and ignore what I don't like or I hate**, the people who are on my DNI or etc. 
 I don't put hide unless things don't get serious or you really bother me yeah
 
@@ -32,6 +29,6 @@ in safe esp server, english servers or in the spanish servers yep
 
 **SUPER DNI okegom & ranfren** (selective, I make exceptions but I VERY rarely & strict do them so don't expect much) + full dni in my links
 
-and yes I'm literally mikoto kayano IRL and muu kusunoki heavy HEAAAAVY fictkin
+and yes I'm literally mikoto kayano IRL and muu kusunoki heavy HEAAAAVY fictkin like. heavy but HEAVY HEAVY HEAVY connected
 
 
